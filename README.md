@@ -1,4 +1,4 @@
-![6505D8A1-B9AE-4105-8260-D607CD65557D](https://github.com/eac0d3rx/eac0d3rx/assets/145233685/0f1fdf5d-b392-4219-9701-6293b147a807)
+![Black Elegant Signature Photography Logo Kopyası (1500 x 500 piksel)](https://github.com/eac0d3rx/eac0d3rx/assets/145233685/945084d3-6b1d-44d6-a5d8-6357842b7901)
 
 # 💫 About Me:
 𝗛𝗲𝗹𝗹𝗼, 𝗜 𝗔𝗠 𝗘𝗔𝗖𝟬𝗗𝟯𝗥𝘅 😎 𝗔 𝗡𝗘𝗪 𝗪𝗢𝗥𝗟𝗗, 𝗔 𝗡𝗘𝗪 𝗟𝗜𝗙𝗘, 𝗛𝗘𝗥𝗘 𝗜𝗦 𝗧𝗛𝗘 𝗧𝗜𝗠𝗘
